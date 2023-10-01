@@ -1,1 +1,2 @@
 Nathan Huffman
+huffmnat@oregonstate.edu
